@@ -9,6 +9,7 @@
 - I like working on motorcycles almost as much as riding them. 🏍
 - I love tinkering with HO trains with my Grandson 🚆
 - I enjoy practicing amateur astronomy and astrophotography 🔭
+- US Army Veteran :flag_united_states:
 - 🔭 I’m currently working on ... lot's of things...
 - 🌱 I’m currently attempting to learn ... python
 
