@@ -6,8 +6,11 @@
 
 ### About Me
 I really enjoy riding motorcycles with my wife 🏍
+
 I like working on motorcycles almost as much as riding them. 🏍
+
 I love tinkering with HO trains with my Grandson 🚆
+
 I enjoy practicing amateur astronomy and astrophotography 🔭
 
 - 🔭 I’m currently working on ... lot's of things...
